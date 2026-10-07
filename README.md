@@ -1,1 +1,0 @@
-# BINDE-INVEST
